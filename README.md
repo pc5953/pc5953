@@ -4,3 +4,4 @@
 - my Email Id is pankajchoudhary0558@gmail.com 
 - my slack username is @pankaj
 - my stack biorder is Genomics,Transcriptomics
+- my twitter handle is: @PankajC73959041
